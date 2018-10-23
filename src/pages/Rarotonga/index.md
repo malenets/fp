@@ -7,6 +7,10 @@ bornIn: "Oslo, Norway"
 
 # **A Different World - A Good Life**
 
+### Rarotonga is the place you only dream about. It is incredibly beautiful and lets you mind and soul relax. You can easily disconnect from the world and reconnect with family. The heat, the simplicity and the amazing nature allows you to really enjoy your life.
+
+
+
 ## Clockwise and Anti-clockwise - which way do you want to go?
 ![Rarotonga](raro6.jpg)
 
